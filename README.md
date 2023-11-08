@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @shenin-xn
+- 👀 I’m interested in bot developing
+- 🌱 I’m currently learning .js
+- 💞️ I’m looking to collaborate on YouTube
+- 📫 How to reach me https://discord.com/invite/2AEvydgt2b
+- 🤖 Join my descord for more https://discord.com/invite/2AEvydgt2b
